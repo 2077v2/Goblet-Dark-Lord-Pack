@@ -1,3 +1,6 @@
+![img](https://s11.gifyu.com/images/THE-GOBLET.png)
+[CURRENT UPDATE]
+
 [HEY PREFECTS Rev 4 is out now](https://)
 
 NOTES
