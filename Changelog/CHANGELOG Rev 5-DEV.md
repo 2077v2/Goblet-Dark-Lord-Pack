@@ -1,3 +1,6 @@
+![img](https://s11.gifyu.com/images/THE-GOBLET.png)
+[UNREALESED UPDATE]
+
 [HEY PREFECTS Rev 5 is COMING SOON](https://)
 
 NOTES
