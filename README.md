@@ -1,3 +1,4 @@
+IF THE DESCRIPTION DOESNT SHOW UP CLICK [HERE](https://github.com/2077v2/Goblet-Dark-Lord-Pack)
 ### **Collection Rev 4**
 
 ![img](https://i.imgur.com/z7oKWoe.png)
